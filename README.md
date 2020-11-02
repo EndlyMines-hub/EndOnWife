@@ -1,2 +1,2 @@
-# EndOnWife
+# EndOnWife.github.io
 The guyyss
